@@ -1,4 +1,4 @@
-# 
+# updated Polymarket Strategy | volume-analysis + market-making offers the most advanced Polymarket strategy, with volume-analysis and market-making. Ideal for professional traders
 
 
 
